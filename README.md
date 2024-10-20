@@ -1,6 +1,6 @@
 ![Shape1](RackMultipart20231213-1-rhuhh9_html_52a66725d00aa3a8.gif)
 
-# **Jeevika M R – Data Analyst Portfolio**
+# **Data Analyst Guided Project 2023**
 
 **About**
 
